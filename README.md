@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Signalista
-- 👀 I’m interested in Communism.
+- 👀 I’m interested in escaping.
 - 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me? Start a private chat with me.
